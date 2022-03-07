@@ -1,5 +1,5 @@
 1. [డిన్నర్](https://jagansai.github.io/dinner.txt)
 2. [చూడాలని ఉంది](https://jagansai.github.io/ChoodalaniUndi.txt)
-3. [కోవిడ్ కష్టాలు](https://jagansai.github.io/CovidKashtaalu.txt)
+3. [కోవిడ్ కష్టాలు](https://jagansai.github.io/CovidKashtalu.txt)
 4. [క్రూస్ కంట్రోల్](https://jagansai.github.io/CruiseControl.txt)
 5. [నడక నేర్పిన పాాఠౕం](https://jagansai.github.io/walking.txt)
