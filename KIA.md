@@ -38,4 +38,4 @@ He quickly thanked his favourite, *"One True God"** and made his deals with KIA 
 **The result, GOI with their gibberish language, introduced special package to AP in 2016.
 KIA with their inclination to AP and with the commitment of Naidu, finally invested a car manufacturing unit in AP in April 2017.***   
 
-### *One True God = Akhilanda Koti Brahmanda Nayakudu, Venkateswara Swam
+### *One True God = Akhilanda Koti Brahmanda Nayakudu, Venkateswara Swamy
